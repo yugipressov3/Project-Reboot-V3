@@ -1,3 +1,5 @@
+(DISCLAIMER) PLEASE TURN OFF ANTI-VIRUS BEFORE DOWNLOADING, WE ARE UNSIGNED BY ALL ANTI-VIRUS COMPANIES, LEAVING US FALSELY FLAGGED.
+
 Thank you for using Project Reboot! We are a safe, open source project dedicated to commuting the nostalgic versions of Fortnite!
 This contains instructions for what you need to do if confused at all.
 
